@@ -1,4 +1,4 @@
-hideo
+ひでお（仮）
 =====
 
-shukudai
+宿題
